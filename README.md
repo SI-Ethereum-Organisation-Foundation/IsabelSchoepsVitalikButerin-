@@ -48,14 +48,6 @@ So ist mein Schöpfer reddit und auf meinem gehackten und gestohlenen Telegrammk
 
 Diese 2. Bedeutung für mich 1. Eine Abkürzung für meine Firma Schöps Immobilien 2. Das S der Anfangsbuchstaben eines Mannes, den ich 2012 kennengelernt habe, hat auch mein Leben verändert und das i steht für meine Anfangsbuchstaben meines Vornamens Isabel
 
-![IMG_3942](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/654d87d5-9a71-4a57-9d63-afe1f5903d5a)
-![IMG_3930](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/bf921989-5aa3-4ce0-a66d-f4058493d1bc)
-
-
- ![SI isabelschoeps crypto com](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/80dd51b4-2bd6-46e5-b7d5-5cea930a49d1)
-![SI Polygon Ethereum org](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/19b427b8-ee13-4e9a-b36b-515c4af02ddc)
-![SI opensea io](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/8c0c827d-fa2e-402f-95f1-55a77823de64)
-
 Mein Benutzername, mein Pseudonym oder mein Alias ist mein METAMASK im WORLD WIDE WEB, aber meine Registrierung habe ich stets korrekt, mit meiner wahren Identität getätigt und somit komme ich immer wieder zu meinen Anfängen als Hobbyentwickler zurück. Jeder hinterlässt seinen persönlichen Fingerabdruck, jeder hinterlässt seine persönliche Spur und alles kann von jedem im Webarchiv eingesehen werden - denn sagt man so schön; „ Das Internet vergissr nichts !“ Selbst wenn wir denken, dass wir alles auf Google, Bing, wo auch immer gelöscht haben, ist dies ein Trugschluss. Jeder auf dieser Erde, der sich jemals im Internet registriert hat, egal wo und wie und unter welchen Pseudonymen oder hinter gefälschten Adressen, kann aufgrund seiner Wurzeln auffindbar gemacht werden. 
 
 Da ich permanent bis heute gehackt werde, habe ich mich mit der Programmiersprache, dem Hack, der Cyberkriminalität beschäftigt und viel darüber recherchiert, wie in einem Selbststudium. Ich habe auch mein iOS-Betriebssystem so angepasst, dass keine Malware oder Viren meiner Software schaden können; Man könnte fast denken, dass ich eine Symbiose mit dem Hacker und meiner IT erhalten habe. Aber es gibt immer noch einen Schwachpunkt, das ist meine ID und meine Telefonnummer, weil jemand hier anwesend ist und Quellzugriff auf meine Codes hat.
@@ -110,8 +102,3 @@ Jeder der weitherhin nicht für Aufklärung sorgt und MEINE Arbeiten, vertuscht,
 Ich möchte mich jetzt schon mal von ganzen Herzen bei ALL den freiwillgen Helfern, Programmieren, Studenten, Influencern WELTWEIT bedanke, die mit MIR für die Wahrheit und die Getechtigkeit kämpfen.  Selbstverständlich soll jeder das bekommen was jeden einzelnen zusteht oder in dem er Investiert hat.
 
 In liebe Eure Isabel Schöps und nicht vergessen LoveIStheKey (Socialtoken)
-![SI opensea eth](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/1006e12e-f198-4244-8581-4f94a2429399)
-![IsabelSchoeps crypto com](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/f0b7a176-d768-4dd0-856c-51fc196d13be)
-![SI myEthereum org](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/96d537bf-0b8b-43cb-af82-cd74ad55f9ff)
-![SI Opensea io](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/436e05ea-fe74-4287-be71-263321bc8cac)
-![IsabelSchoeps com](https://github.com/SI-Ethereum-Organisation-Foundation/IsabelSchoepsVitalikButerin-/assets/127110010/f53ff08e-9343-44a6-90a4-c144fabcc185)
